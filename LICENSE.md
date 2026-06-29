@@ -1,4 +1,4 @@
-# 
+# VIP Soda PDF scripts para Mac OS | Exclusivo Soda PDF scripts para PC Windows. Con copias de seguridad automáticas y importación de documentos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
